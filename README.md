@@ -1,0 +1,1 @@
+# NamikoToriyama.github.io
